@@ -1,6 +1,6 @@
 ---
 title: CLARISSA A. CASSELS 
-Creative Writer, Bilingual Translator and Conservation Educator
+subtitle: Creative Writer, Bilingual Translator and Conservation Educator
 ---
 
 As a bilingual professional fluent in English and Italian, with strong academic writing skills in both languages, I bring creativity, precision, and dedication to every project. With a background in conservation and education, I specialize in crafting high-quality content that reflects sustainability, inclusivity, and care.
